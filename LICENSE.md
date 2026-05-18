@@ -1,4 +1,4 @@
-# 
+# updated bitmex trading bot addons is the best bitmex trading bot addons with API-integration and futures-arbitrage. Safe, reliable, and optimized for CEX, DEX, and algorithmic
 
 
 
